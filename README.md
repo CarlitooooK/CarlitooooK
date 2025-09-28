@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/CarlitooooK](https://github.com/CarlitooooK)
 
-- ⚡ Fun fact **I really like phonk**
+- ⚡ Fun fact **I enjoy learning**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
